@@ -1,4 +1,4 @@
-#🚀 PROXY.BOT 🚀
+🚀 PROXY.BOT 🚀
 
 📄 OVERVIEW
 
